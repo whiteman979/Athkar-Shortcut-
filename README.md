@@ -2,7 +2,6 @@
  
  -We Help People 
 
- -We Make People Muslim
 
  -We Make Them Read Quran
 
