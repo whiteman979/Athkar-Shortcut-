@@ -1,0 +1,17 @@
+Hello Welcome To Akhkar Shortcut
+ -We Help People 
+ -We Make People Muslim
+ -We Make Them Read Quran
+ -Prayer Website
+ -Carrd.co
+ -We Make People Donate Poor Muslim People
+ 
+-By Owner
+\athkarshortcutfan/
+   LINK HERE!
+
+We're Been Working This Shortcut For 4 Month
+So this is the people There not muslim
+Thank Yall For supporting my Shortcut.
+
+<3,Owner
